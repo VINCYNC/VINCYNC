@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @VINCYNC
+- 👀 I’m interested in anime and games
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me, dont
